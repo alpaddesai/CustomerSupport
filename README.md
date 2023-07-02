@@ -2,6 +2,6 @@
 
 ![image](InternalCustomerSupport.jpg)
 
-![image]()
+![image](EthicsandExcellence.png]
 
-![image]()
+![image](
