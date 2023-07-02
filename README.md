@@ -2,6 +2,8 @@
 
 ![image](InternalCustomerSupport.jpg)
 
-![image](EthicsandExcellence.png]
+![image](EthicsandExcellence.png)
 
-![image](
+![image](USCopyrightCertificate.png)
+
+Additional details reference 
